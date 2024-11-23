@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Surya S
+- 👀 I’m interested in Finance
+- 🌱 I’m currently pursuing MBA Finance
+- 💞️ I’m looking to collaborate on any project related to finance
+- 📫 How to reach me ... Linked in - Surya Suresh www.linkedin.com/in/surya-suresh-900483259
